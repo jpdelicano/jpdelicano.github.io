@@ -1,1 +1,0 @@
-# jpdelicano.github.io
